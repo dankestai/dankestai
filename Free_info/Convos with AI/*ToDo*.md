@@ -1,0 +1,1 @@
+-what if you just fed ai the experience it asked for
